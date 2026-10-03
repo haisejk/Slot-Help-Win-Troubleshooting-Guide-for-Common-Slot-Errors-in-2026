@@ -1,0 +1,1 @@
+# Slot-Help-Win-Troubleshooting-Guide-for-Common-Slot-Errors-in-2026
